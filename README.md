@@ -1,3 +1,3 @@
 # June-Crusher
 Just another repository. 
-Love socder
+Love soccer
